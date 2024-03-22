@@ -1,1 +1,1 @@
-# -C-Users-rithi-Fake-Product-Identification-using-blockchain-technology
+# -C-Users-rithika-Fake-Product-Identification-using-blockchain-technology
